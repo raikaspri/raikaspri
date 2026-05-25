@@ -1,10 +1,10 @@
 <div align="center">
 
 
-![](https://64.media.tumblr.com/9164f09924ba251b0be4fae3c952fa98/71c96311b1353bf0-e1/s400x600/4f57023ae8b18b13baa0324b8a94311dffd95a52.gif)
+![](https://64.media.tumblr.com/792e43741d1ad718d717746ab8418d93/8e51b4e5e28dbbf6-55/s540x810/c7de4c6389c4125dd1c1fc1ee685f0d688c3ccc6.gif)
 
+by that fair-skinned girl that summer erased <br> i want to be possessed so badly it hurts
 
-live LIFE as you please <br> making it your own depends on you <br> don't waste time hiding it<br> do what's on your MIND more proudly than anyone
 
 sign my [atabook!](https://youjisakiyama.atabook.org) ![](https://pixelsafari.neocities.org/favicon/symbol/heart/blue2.gif) read my [rentry](https://rentry.co/paratised) <br> hi heres my [notepin](https://haru.notepin.co) where i might write absolute peak 
 
